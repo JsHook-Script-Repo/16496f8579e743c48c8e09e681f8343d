@@ -1,1 +1,1 @@
-fridagadget脚本
+便捷下载
